@@ -72,16 +72,16 @@ Mar'14-Apr'17
 Education
 -------
 
-M. Tech 2016-2018:
+M. Tech 2016-2018
 :   Software Systems, BITS, Pilani (WILP)
 
-B.E 2009-2013:
+B.E 2009-2013
 :   Electronics & Telecomm., VIT, University of Mumbai
 
-H.S.C. 2009:
+H.S.C. 2009
 :   Science, Guru Nanak Khalsa College of Arts, Science & Commerce
 
-S.S.C. 2007:
+S.S.C. 2007
 :   IES Digambar Patkar Vidyalaya
 
 
